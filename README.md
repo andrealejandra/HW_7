@@ -24,10 +24,10 @@ Homework submissions **must be on time AS IS**. Late submissions will receive lo
 #### Attendance
 
 
-Attendance must be maintained at a **95%** rate. (You can miss **no more** than a total of **3 classes**.) 
+Attendance must be maintained at a **90%** rate. (You can miss **no more** than a total of **6 classes**.) 
 
 
-Written permission must be obtained to miss class or it's considered one of your 3 absences.
+Written permission must be obtained to miss class or it's considered one of your 6 absences.
 
 An abscence can be obatined by:
 
